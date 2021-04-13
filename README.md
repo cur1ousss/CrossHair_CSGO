@@ -4,6 +4,8 @@ CrossHair Hash
 
 Current Green Gap >> CSGO-cSCq8-XiPXt-5WkEu-S9Y4i-BNzMM
 
+https://app.scope.gg/matches/3473896033644183879
+
 
 https://steamcommunity.com/id/suziop/
 igl cynic
