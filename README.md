@@ -2,6 +2,8 @@
 CrossHair Hash
 
 
+Furiosss >> CSGO-RDuOv-JZRvh-HypGW-3YBQq-d7qRP
+
 Current Green Gap >> CSGO-cSCq8-XiPXt-5WkEu-S9Y4i-BNzMM
 
 https://app.scope.gg/matches/3473896033644183879
