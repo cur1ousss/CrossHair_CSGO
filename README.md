@@ -1,6 +1,8 @@
 # CrossHair (Unformmated :( )
 CrossHair Hash
 
+Banana Circle green blue >> CSGO-jxxQP-BSftd-n9ov3-LSePq-PXOYE
+
 Banana Circle >> CSGO-mPpkR-d2htN-RQCfd-yJneX-HRz6A 
 
 
