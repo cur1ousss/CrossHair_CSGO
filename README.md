@@ -1,5 +1,6 @@
 # CrossHair (Unformmated :( )
 CrossHair Hash
+https://github.com/mija/yuki.cfg
 
 Banana Circle green blue >> CSGO-jxxQP-BSftd-n9ov3-LSePq-PXOYE
 
