@@ -13,6 +13,8 @@ Furiosss >> CSGO-RDuOv-JZRvh-HypGW-3YBQq-d7qRP
 
 Current Green Gap >> CSGO-cSCq8-XiPXt-5WkEu-S9Y4i-BNzMM
 
+Strange ancient Crosshair >> CSGO-eYWKx-tzKFD-jEAYt-AN3tq-uL88F
+
 https://app.scope.gg/matches/3473896033644183879
 
 
