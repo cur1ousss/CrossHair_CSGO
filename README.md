@@ -107,6 +107,20 @@ cat glyph 2
 　　　　　(,`, З о　　　　,.ノ
 　　　　　 ゞ_,,,....彡彡~
 
+Dog 
+╭━━━╮     ╭━━━╮
+┃╭┈┈╰━━━╯┈┈╮    ┃
+╰┓╭━━╮ ╭━━╮   ┏╯
+ ┃┃╭╮┃ ┃╭╮┃  ┃
+ ┃╰┻┻╯▃╰┻┻╯  ┃
+ ┃   ╰━╯  ┃
+ ╰━┓    ┏━╯
+   ┃┈╮ ╭┈┃
+   ┃╰╯ ╰╯┃
+   ╰┓┏━┓┏╯
+    ╰╯ ╰╯ 
+    dfog
+
 ⣿⣿⣿⡇⢩⠘⣴⣿⣥⣤⢦⢁⠄⠉⡄⡇⠛⠛⠛⢛⣭⣾⣿⣿⡏
 ⣿⣿⣿⡇⠹⢇⡹⣿⣿⣛⣓⣿⡿⠞⠑⣱⠄⢀⣴⣿⣿⣿⣿⡟
 ⣿⣿⣿⣧⣸⡄⣿⣪⡻⣿⠿⠋⠄⠄⣀⣀⢡⣿⣿⣿⣿⡿⠋
@@ -375,3 +389,6 @@ youtube com/watch?v=22mv251bt_U >> AroraJi Stream
 Card Flip joker artwork guide steal lmao >> https://steamcommunity.com/sharedfiles/filedetails/?id=1086064463
 
 MM Failed to Accept PopUp Glitch https://steamcommunity.com/app/730/discussions/0/1640918469758063466/
+
+http://steamcommunity.com/profiles/76561199115290348 >> Profile description
+I wont let the inner child in me die, bachpana toh rahega mujmhe hamesha, age chahe kitni bi badi hojaaye kyunki "Growing up comes at the cost of innocence of child" sorry boss innocence, imaandari, masti, mazaak, khel khud ye mujhme khatam nahi honewala.
