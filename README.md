@@ -354,3 +354,4 @@ youtube com/watch?v=22mv251bt_U >> AroraJi Stream
 
 Card Flip joker artwork guide steal lmao >> https://steamcommunity.com/sharedfiles/filedetails/?id=1086064463
 
+MM Failed to Accept PopUp Glitch https://steamcommunity.com/app/730/discussions/0/1640918469758063466/
