@@ -333,3 +333,5 @@ https://steamcommunity.com/profiles/76561198290950776 >> same talon knife
 youtube com/watch?v=22mv251bt_U >> AroraJi Stream
 
 
+Card Flip joker artwork guide steal lmao >> https://steamcommunity.com/sharedfiles/filedetails/?id=1086064463
+
