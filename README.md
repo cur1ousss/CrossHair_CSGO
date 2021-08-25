@@ -410,6 +410,44 @@ Step4: Suprise
 ⢸⠀⠀⠣⠀⠀⢸⢄⠀⠀⠀⠀⠀⠀⠀⠀⠀⡇⠀
 ⢸⠀⠀⠀⠀⠀⢸⠀⢇⠀⠀⠀⠀⠀⠀⠀⠀⡇⠀
 
+rose 
+⠿⠛⠉⠀⠒⠻⢿⣿⣿⣿⣇⡀
+⠀⣠⣶⣾⡏⢁⣴⣾⣿⣿⣿⣶⣦⡈⢻⣿⣿⣷
+⢰⣿⣿⣿⠀⢼⠿⠛⠉⠉⠉⠙⠻⣿⠀⢻⣿⠿⢀⣤⣶⣦⣄⡀
+⢸⣿⡟⠉⣀⣠⠆⢀⣴⣶⣦⣄⠀⠙⠀⠸⣿⣦⣈⠻⠿⠛⠉⠁
+⠈⢿⡀⢰⣿⡟⠀⢾⣿⡿⠋⣁⣤⣾⡇⠀⣿⣿⣿⣦
+⢸⡌⠃⠸⣿⡁⠀⠘⠟⢁⣾⣿⣿⣿⡇⠀⣿⣿⣿⡿
+⠈⣿⣦⣀⠉⠃⠀⣠⣶⣿⣿⡿⠿⠛⢁⣼⣿⡿⠋⠠⠤⢶⣤⡀
+⠀⢸⣿⣿⣿⣦⣄⣈⣉⣩⣤⣄⡀⠺⠿⠿⠛⣁⣴⣶⣶⣦⣹⣿⡄
+⠀⠈⠻⢿⣿⣿⣿⣿⣿⣿⡿⠟⠉⠸⡄⠀⠀⠀⠈⠉⠙⠻⣿⣿⡇
+⠀⠀⠀⠀⠀⠉⠉⠉⢉⠁⣠⣴⣷⠀⠘⡄⠀⠀⠀⠀⠀⠀⠈⠿⠁
+⠀⠀⠀⠀⠀⠀⢀⣾⣇⣼⣿⣿⡿⠀⠀⢠
+⠀⠀⠀⠀⠀⠀⢸⣿⣿⠿⠟⠋⠀⠀⠀⢸
+⠀⠀⠀⠀⠀⠀⠘⠋⠀⠀⠀⠀⠀⠀⠀⢸
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡌
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠚⠁
+
+cat 
+..........................／＞　　フ <3
+.........................| 　_　 _ l
+......................／` ミ＿x＿ノ Have a nice week
+..................../　　　　 |
+................../　 ヽ　　 ﾉ
+.................│　　|　|　|
+..........／￣|　　 |　|　|
+..........| (￣ヽ＿_ヽ_)__)
+..........＼二つ
+
+ :sd::sd::sd::sd::sd::sd:  :sd::sd::sd::sd::sd::sd::sd:  
+  :sd::sd::sd::sd::sd::sd:  :sd::sd::sd::sd::sd::sd::sd:  
+  :sd::sd:                    :sd::sd:  
+  :sd::sd:                  :sd::sd:    
+  :sd::sd::sd::sd::sd::sd:        :sd::sd:      
+  :sd::sd::sd::sd::sd::sd:      :sd::sd:        
+  :sd::sd:            :sd::sd:          
+  :sd::sd:          :sd::sd:            
+  :sd::sd::sd::sd::sd::sd:  :sd::sd::sd::sd::sd::sd::sd:  
+  :sd::sd::sd::sd::sd::sd:  :sd::sd::sd::sd::sd::sd::sd:  
 
 Niko is as cracked as he is jacked. Saw him at 7-11 the other day an he was buying cases of Redbull and adult diapers. I asked him what the diapers were for an he said, “they help contain my full power so I don’t completely sh i t on these kids” and then he bunny hopped out the door
 
