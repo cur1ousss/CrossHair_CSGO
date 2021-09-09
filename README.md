@@ -60,6 +60,19 @@ CSGO-66z84-uxv84-WaFtp-6SVmp-cAPEL
 red dynamic
 CSGO-QHbor-VfxML-rO3T6-hWzJq-7FwzF
 
+Our father, who AWPS in heaven
+CS be thy game
+Uncase begun, them skins be won,
+Covert - and not a mil-spec
+give us this day a StatTrak Knife
+and forgive us when we rage quit,
+as we forgive those who aimbot against us,
+and lead us not into scamnation
+but undeliverus a battlescarred
+G A B E N .
+
+
+
 ⢠⠊⣉⠒⠤⢀⡀          ⡐⢁⠴⢜⢄
  ⡎⢸  ⠉⠐⠢⢌⠑⢄    ⡸  ⡆    ⠣⠱⡀
   ⡇⢸        ⣀⠗  ⠉⠉⠁  ⠙⠢⠤⡀⢃⢱
