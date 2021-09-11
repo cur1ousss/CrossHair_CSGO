@@ -33,6 +33,8 @@ https://steamcommunity.com/id/dgmdevgaming/inventory/
 
 https://steamcommunity.com/id/grbiceps/ pROOO
 
+http://steamcommunity.com/profiles/76561198450340284 dope gold diamond talon
+
 Furiousss
 CSGO-RDuOv-JZRvh-HypGW-3YBQq-d7qRP
 
