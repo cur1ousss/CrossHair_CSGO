@@ -35,6 +35,16 @@ Random?? >>CSGO-2u3cF-yNiue-nDjPk-tsu7j-OEH8D
 https://steamcommunity.com/id/suziop/
 igl cynic
 
+# https://steamcommunity.com/profiles/76561198355329253 Vaibhav Singh Khutney Korba BakchodLaunda sg wala lalten osama bin
+
+# https://steamcommunity.com/profiles/76561198171300782 Fast af Cactus Timeis But a window Friend youtuber
+
+# https://steamcommunity.com/profiles/76561198838534727 >> Deadpool good guy
+
+#Youtuber Vacced>> https://steamcommunity.com/profiles/76561198977386758
+Vacced Profile Grimjow>> http://steamcommunity.com/profiles/76561198870421945
+#TradeBanned >> https://steamcommunity.com/profiles/76561198983754496
+
 
 https://steamcommunity.com/profiles/76561198142717073/  nepal game mart
 
