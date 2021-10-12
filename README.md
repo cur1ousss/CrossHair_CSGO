@@ -58,6 +58,9 @@ hive guide https://steamcommunity.com/sharedfiles/filedetails/?id=878908361
 ch guide https://broskins.com/index.php?threads/case-hardened-gold-gem-guide-patterns.276/
 lmao mp7 sheeter https://www.youtube.com/watch?v=Ef7eb9sPQBs https://steamcommunity.com/profiles/76561198121054003
 
+Hey future pros, here another pro tip for you all out there. Hide chat for an instant increase in iq and a better viewing experience. See you on the server!
+
+
 Furiousss
 CSGO-RDuOv-JZRvh-HypGW-3YBQq-d7qRP
 
