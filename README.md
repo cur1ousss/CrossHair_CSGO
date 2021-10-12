@@ -54,6 +54,10 @@ https://steamcommunity.com/id/grbiceps/ pROOO
 
 http://steamcommunity.com/profiles/76561198450340284 dope gold diamond talon
 
+hive guide https://steamcommunity.com/sharedfiles/filedetails/?id=878908361
+ch guide https://broskins.com/index.php?threads/case-hardened-gold-gem-guide-patterns.276/
+lmao mp7 sheeter https://www.youtube.com/watch?v=Ef7eb9sPQBs https://steamcommunity.com/profiles/76561198121054003
+
 Furiousss
 CSGO-RDuOv-JZRvh-HypGW-3YBQq-d7qRP
 
