@@ -2,6 +2,8 @@
 CrossHair Hash
 https://github.com/mija/yuki.cfg
 
+https://support.lenovo.com/us/en/videos/vid500028
+
 Old White xantares santaares >> CSGO-23R4C-ziJeC-rV85K-YHGXj-ztZpG
 
 Current Blue Short zero gap >> CSGO-MQrmz-Q4AuO-2aM9U-OxMzC-YZRVP
