@@ -47,6 +47,7 @@ Youtuber Vacced>> https://steamcommunity.com/profiles/76561198977386758
 Vacced Profile Grimjow>> http://steamcommunity.com/profiles/76561198870421945
 TradeBanned >> https://steamcommunity.com/profiles/76561198983754496
 
+fucking bot Buy order low snipe https://steamcommunity.com/profiles/76561198341989198/inventory/
 
 https://steamcommunity.com/profiles/76561198142717073/  nepal game mart
 
