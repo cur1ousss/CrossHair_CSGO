@@ -49,6 +49,31 @@ TradeBanned >> https://steamcommunity.com/profiles/76561198983754496
 
 fucking bot Buy order low snipe https://steamcommunity.com/profiles/76561198341989198/inventory/
 
+Anime Tiddie lmao https://steamcommunity.com/profiles/76561198387793458
+
+Achievements - Literally nothing, I'm the definition of mediocrity and wasting my time on a video game that i will never amount to anything on. Only reason i still play this game is because i need to fill the gawddamn void in my life that living in this ♥♥♥♥♥♥ country amongst ♥♥♥♥♥♥ people has created in me. I should quit, honestly. And if you are reading this bio, so should you.https://steamcommunity.com/profiles/76561198339206424/
+
+awp hydra #1 sheeter https://steamcommunity.com/profiles/76561199211336774 http://steamcommunity.com/profiles/76561198040974567
+
+anti scam https://steamcommunity.com/sharedfiles/filedetails/?id=784477482&tscn=1622905649
+
+http://steamcommunity.com/profiles/76561198984752198 multi art
+
+sastiraaaand http://steamcommunity.com/profiles/76561198412322254
+arriBra http://steamcommunity.com/profiles/76561198969510646
+
+http://steamcommunity.com/profiles/76561199049845311
+
+catfish maybe http://steamcommunity.com/profiles/76561198849719436
+
+http://steamcommunity.com/profiles/76561198122773989 scammer comment on screenshot mine
+
+
+𝕶𝖓𝖔𝖜𝖎𝖓𝖌 𝖞𝖔𝖚𝖗 𝖔𝖜𝖓 𝖉𝖆𝖗𝖐𝖓𝖊𝖘𝖘 𝖎𝖘 𝖙𝖍𝖊 𝖇𝖊𝖘𝖙 𝖒𝖊𝖙𝖍𝖔𝖉 𝖋𝖔𝖗 𝖉𝖊𝖆𝖑𝖎𝖓𝖌 𝖜𝖎𝖙𝖍 𝖙𝖍𝖊 𝖉𝖆𝖗𝖐𝖓𝖊𝖘𝖘𝖊𝖘 𝖔𝖋 𝖔𝖙𝖍𝖊𝖗 𝖕𝖊𝖔𝖕𝖑𝖊.
+- 𝕾𝖆𝖒𝖚𝖊𝖑 𝕷. 𝕵𝖆𝖈𝖐𝖘𝖔𝖓
+
+SARA + toxic + racist player dudeh...*smh, fix ur attidude bro, dont waste ur time for potato gaming, but focus increase your points at school, for make ur parents happy, dont be like burden..ok, good game and have a nice day:espresso::steamthumbsup: http://steamcommunity.com/profiles/76561199017849512 comments reketed
+
 https://steamcommunity.com/profiles/76561198142717073/  nepal game mart
 
 https://steamcommunity.com/id/dgmdevgaming/inventory/
