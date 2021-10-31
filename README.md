@@ -43,6 +43,7 @@ https://steamcommunity.com/profiles/76561198171300782 Fast af Cactus Timeis But 
 
 https://steamcommunity.com/profiles/76561198838534727 >> Deadpool good guy
 
+furii profile >> http://steamcommunity.com/profiles/76561198146838248
 Youtuber Vacced>> https://steamcommunity.com/profiles/76561198977386758
 Vacced Profile Grimjow>> http://steamcommunity.com/profiles/76561198870421945
 TradeBanned >> https://steamcommunity.com/profiles/76561198983754496
