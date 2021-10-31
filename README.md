@@ -50,6 +50,8 @@ TradeBanned >> https://steamcommunity.com/profiles/76561198983754496
 
 fucking bot Buy order low snipe https://steamcommunity.com/profiles/76561198341989198/inventory/
 
+art http://steamcommunity.com/profiles/76561198167110743
+
 Anime Tiddie lmao https://steamcommunity.com/profiles/76561198387793458
 
 Achievements - Literally nothing, I'm the definition of mediocrity and wasting my time on a video game that i will never amount to anything on. Only reason i still play this game is because i need to fill the gawddamn void in my life that living in this ♥♥♥♥♥♥ country amongst ♥♥♥♥♥♥ people has created in me. I should quit, honestly. And if you are reading this bio, so should you.https://steamcommunity.com/profiles/76561198339206424/
