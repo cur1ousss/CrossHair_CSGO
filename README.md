@@ -71,6 +71,24 @@ catfish maybe http://steamcommunity.com/profiles/76561198849719436
 
 http://steamcommunity.com/profiles/76561198122773989 scammer comment on screenshot mine
 
+https://help.steampowered.com/en/faqs/view/46DB-4CEC-F7E9-49E5 >> OW bans on players
+https://steamcommunity.com/profiles/76561198145654617 shemale
+https://steamcommunity.com/profiles/76561198308724504 laundiya friend of above
+http://steamcommunity.com/profiles/76561198930822005 bakchod description 
+(╭☞•́⍛•̀)╭☞ बाप से हिसाब से। जनहित में जारी। (◠‿◕)
+
+:ButterflyBeydo: ily.. :ButterflyBeydo:
+
+"Her memories are
+like alcohol,
+can't deny it.
+The more I drink,
+the more it feels good.
+
+But the moment I realize
+its too much,
+its already too late...💔"
+- A 15 yr old kid
 
 𝕶𝖓𝖔𝖜𝖎𝖓𝖌 𝖞𝖔𝖚𝖗 𝖔𝖜𝖓 𝖉𝖆𝖗𝖐𝖓𝖊𝖘𝖘 𝖎𝖘 𝖙𝖍𝖊 𝖇𝖊𝖘𝖙 𝖒𝖊𝖙𝖍𝖔𝖉 𝖋𝖔𝖗 𝖉𝖊𝖆𝖑𝖎𝖓𝖌 𝖜𝖎𝖙𝖍 𝖙𝖍𝖊 𝖉𝖆𝖗𝖐𝖓𝖊𝖘𝖘𝖊𝖘 𝖔𝖋 𝖔𝖙𝖍𝖊𝖗 𝖕𝖊𝖔𝖕𝖑𝖊.
 - 𝕾𝖆𝖒𝖚𝖊𝖑 𝕷. 𝕵𝖆𝖈𝖐𝖘𝖔𝖓
