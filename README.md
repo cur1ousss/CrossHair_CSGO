@@ -1,5 +1,9 @@
 # CrossHair (Unformmated :( )
 
+https://microsoftedgewelcome.microsoft.com/en-us/update/94?exp=pf1-e34&form=MT002P
+https://microsoftedgewelcome.microsoft.com/en-us/update/96?channel=stable&version=96.0.1054.29&form=MT002S
+https://www.msn.com/en-in/entertainment/other/would-ve-been-better-if-i-had-died-instead-of-puneeth-veteran-actor-sarath-kumar/ar-AAQOhdM?ocid=msedgntp
+
 # str() vs repr()
 
 from types import CodeType
