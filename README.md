@@ -69,6 +69,8 @@ anti scam https://steamcommunity.com/sharedfiles/filedetails/?id=784477482&tscn=
 
 http://steamcommunity.com/profiles/76561198984752198 multi art
 
+“The only difference between you & me is that I don't give up, I only get pissed off.”
+
 sastiraaaand http://steamcommunity.com/profiles/76561198412322254
 arriBra http://steamcommunity.com/profiles/76561198969510646
 
