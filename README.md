@@ -4,7 +4,31 @@ https://microsoftedgewelcome.microsoft.com/en-us/update/94?exp=pf1-e34&form=MT00
 https://microsoftedgewelcome.microsoft.com/en-us/update/96?channel=stable&version=96.0.1054.29&form=MT002S
 https://www.msn.com/en-in/entertainment/other/would-ve-been-better-if-i-had-died-instead-of-puneeth-veteran-actor-sarath-kumar/ar-AAQOhdM?ocid=msedgntp
 
+Nice opinion, just one tiny problem with it. Upon further inspection, it looks like your opinion is different from mine. clears throat Let me tell you something. I AM THE BASELINE FOR OPINIONS. Any opinion I hold is objectively correct & as a result any other opinions are wrong. Guess what? You happen to have to hold a wrong one. I hope you know that your opinion is now illegal. I have contacted the FBI, CIA, NSA, Navy, Seals, Secret services, MI6, KGB, MOSSAD and your mom. You'll be sorry that you have shared your opinion. By the time you're reading this, you'll be done for. Nature will punish you. Humanity will punish you. Supernatural beings will punish you. Space will punish you. We decided just to make sure we'll nuke your house for morbid, so there's no chance you can run away. Everyone will know that you've died. A small price to pay, to remove your wrong opinion from this world.
 
+ar https://steamcommunity.com/profiles/76561198888086587
+nice tt llmao https://steamcommunity.com/sharedfiles/filedetails/?id=2576033780
+
+arroo https://steamcommunity.com/profiles/76561199009846933
+arii http://steamcommunity.com/profiles/76561198943603763
+
+inki maachodni hai baadme dm d2 ud riya tha
+ecstascy naruto
+https://steamcommunity.com/profiles/76561198433279864
+tatti warlock
+http://steamcommunity.com/profiles/76561199136054598
+very nice jyada bhok raha tha
+http://steamcommunity.com/profiles/76561198314461861
+nagalandi raaand
+http://steamcommunity.com/profiles/76561198194275221
+trickster iski toh jarur maachodni
+http://steamcommunity.com/profiles/76561198051764138
+
+arr https://steamcommunity.com/id/soldier2k/inventory/
+
+https://steamcommunity.com/profiles/76561199145459860 arrr
+
+https://steamcommunity.com/id/Lucas0824 trd
 #########################################################################################################################################
 CrossHair Hash
 https://github.com/mija/yuki.cfg
