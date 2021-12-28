@@ -35,6 +35,23 @@ https://github.com/mija/yuki.cfg
 
 https://support.lenovo.com/us/en/videos/vid500028
 
+cad ak https://steamcommunity.com/id/dabsu/
+https://steamcommunity.com/profiles/76561198855768645
+
+iski pakkamaachodunga baadme https://steamcommunity.com/profiles/76561199005750166
+https://www.youtube.com/watch?v=9qAGMjBY49U
+arr http://steamcommunity.com/profiles/76561199030030739
+
+https://steamcommunity.com/id/dark2q/ shk?
+
+AbL‎ : https://youtu.be/V1O5-WEJI2g lmao sheeter
+
+https://steamcommunity.com/profiles/76561198389973407 arr
+
+25 October 2021 - Sleepink/Sleeping karna hai Nini aa rahi for a while soon brudda soon meet yes :handrecycling::Raelius::Bleed:
+
+
+
 Old White xantares santaares >> CSGO-23R4C-ziJeC-rV85K-YHGXj-ztZpG
 
 Current Blue Short zero gap >> CSGO-MQrmz-Q4AuO-2aM9U-OxMzC-YZRVP
