@@ -31,6 +31,9 @@ arr https://steamcommunity.com/id/soldier2k/inventory/
 https://steamcommunity.com/profiles/76561199145459860 arrr
 
 https://steamcommunity.com/id/Lucas0824 trd
+
+song youtuber anime baka? https://steamcommunity.com/profiles/76561198930488919
+
 #########################################################################################################################################
 CrossHair Hash
 https://github.com/mija/yuki.cfg
@@ -45,6 +48,15 @@ https://www.youtube.com/watch?v=9qAGMjBY49U
 arr http://steamcommunity.com/profiles/76561199030030739
 
 https://steamcommunity.com/id/dark2q/ shk?
+
+maze youtuber sIMPLE CROSSHAIR
+CSGO-kxDZx-fdfJf-nORoX-635io-RFZ2Q
+
+maZe_yt 1 Feb @ 1:07am
+Copy Crosshair here - :)
+
+maZe_yt 1 Feb @ 1:06am
+CSGO-V9TJM-NnFrq-R5aYO-sW9x4-JTOpP
 
 AbL‎ : https://youtu.be/V1O5-WEJI2g lmao sheeter
 
