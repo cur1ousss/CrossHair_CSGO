@@ -41,6 +41,8 @@ http://steamcommunity.com/profiles/76561198194275221
 trickster iski toh jarur maachodni
 http://steamcommunity.com/profiles/76561198051764138
 
+faltu ungli kar ra tha 76561198979092715 dm d2 mei lmaop
+
 arr https://steamcommunity.com/id/soldier2k/inventory/
 
 https://steamcommunity.com/profiles/76561199145459860 arrr
