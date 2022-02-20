@@ -1,6 +1,7 @@
 # CrossHair (Unformmated :( )
 
 s1mple crosshair Bestestestest CSGO-kxDZx-fdfJf-nORoX-635io-RFZ2Q
+lmao jumpscare - https://pnrtscr.com/myzs1h
 
 https://microsoftedgewelcome.microsoft.com/en-us/update/94?exp=pf1-e34&form=MT002P
 https://microsoftedgewelcome.microsoft.com/en-us/update/96?channel=stable&version=96.0.1054.29&form=MT002S
