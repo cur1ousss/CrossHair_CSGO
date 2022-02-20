@@ -22,6 +22,8 @@ art lole 76561198449758054
 
 25 arrii arrri 76561199029862977 
 
+how to fax https://steamcommunity.com/sharedfiles/filedetails/?id=1460666132
+
 s1mple crosshair Bestestestest CSGO-kxDZx-fdfJf-nORoX-635io-RFZ2Q
 maze_yt CSGO-V9TJM-NnFrq-R5aYO-sW9x4-JTOpP
 
