@@ -17,6 +17,8 @@ arii http://steamcommunity.com/profiles/76561198943603763
 
 good nametags lmao http://steamcommunity.com/profiles/76561198200685605
 
+3rd fragger hoke muchodi kar ra lmao http://steamcommunity.com/profiles/76561198446469268 iski gand marni baadme
+
 bkcho 76561198388152026
 cmnte 76561198453859617
 how to ex https://steamcommunity.com/sharedfiles/filedetails/?id=1460666132
