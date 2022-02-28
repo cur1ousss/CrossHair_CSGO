@@ -17,7 +17,7 @@ arii http://steamcommunity.com/profiles/76561198943603763
 
 good nametags lmao http://steamcommunity.com/profiles/76561198200685605
 
-3rd fragger hoke muchodi kar ra lmao http://steamcommunity.com/profiles/76561198446469268 iski gand marni baadme
+3rd fragger hoke muchodi kar ra lmao http://steamcommunity.com/profiles/76561198446469268 iski gand marni baadme https://csgostats.gg/match/59364779 https://app.scope.gg/matches/3534745506796273973
 
 bkcho 76561198388152026
 cmnte 76561198453859617
